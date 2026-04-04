@@ -6,7 +6,7 @@
 
 
 
-<p align="center">
+
 $$\color{#6f6eb6}\text{"　i　cant　believe　i　let　you　get　away　"}$$
 
 <p align="center">
