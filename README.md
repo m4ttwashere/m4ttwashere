@@ -2,7 +2,7 @@
   <img src="https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=REPENTED&color=1B76F2" alt="visitor counter">
 </p>
 
-$$\color{#e8cbd4}\text{text}$$
+$$\color{#3f4096}\text{"　i　cant　believe　i　let　you　get　away　"}$$
 
 
 <p align="center">
