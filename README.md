@@ -7,7 +7,7 @@
 
 
 
-$$\color{#6f6eb6}\text{"　i　cant　believe　i　let　you　get　away　"}$$
+$$\color{#6f6eb6}\text{"　i+cant　believe　i　let　you　get　away　"}$$
 
 <p align="center">
 <img width="889" height="572" alt="image" src="https://github.com/user-attachments/assets/e8d5d07a-6139-44eb-8434-493c764f758b" />
