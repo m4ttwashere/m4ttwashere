@@ -2,6 +2,8 @@
   <img src="https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=REPENTED&color=1B76F2" alt="visitor counter">
 </p>
 
+$$\color{#e8cbd4}\text{text}$$
+
 
 <p align="center">
 im matt hiiihiiii ikin matt andfictkin him doubs just iwcplease ty
