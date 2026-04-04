@@ -9,7 +9,8 @@
 
 $$\color{#6f6eb6}\text{"　i　cant　believe　i　let　you　get　away　"}$$
 
-$\text{\color{#aa4289}mattkin \color{#6f6eb6}n \color{#aa4289}fictkin}$
+$\text{\color{#aa4289}mat kin \color{#6f6eb6}n \color{#aa4289}fictkin}$
+
 
 
 <p align="center">
