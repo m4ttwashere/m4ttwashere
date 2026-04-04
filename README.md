@@ -9,7 +9,7 @@
 
 $$\color{#6f6eb6}\text{"　i　cant　believe　i　let　you　get　away　"}$$
 
-$$\text{\color{#6f6eb6}mat \color{#aa4289}kin\ color{#6f6eb6}n \color{#aa4289}fict\color{#6f6eb6}kin}$$
+$$\text{\color{#6f6eb6}mat \color{#aa4289}kin \color{#6f6eb6}n \color{#aa4289}fict\color{#6f6eb6}kin}$$
 
 
 
