@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=ponytown&label=REPENTED&color=aa4289" alt="visitor counter">
+  <img src="https://komarev.com/ghpvc/?username=github&label=REPENTED&color=aa4289" alt="visitor counter">
 </p>
 
 
