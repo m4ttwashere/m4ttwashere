@@ -13,6 +13,6 @@ $$\color{#6f6eb6}\text{"　i　cant　believe　i　let　you　get　away　"}$
 
 <div align="center">
 
-[@pr3ttiestpriincess](https://github.com/pr3ttiestpriincess) &nbsp; main
+[@pr3ttiestpriincess](https://github.com/pr3ttiestpriincess) &nbsp; ${\color{#aa4289}ma}{\color{#6f6eb6}in}$
 
 </div>
