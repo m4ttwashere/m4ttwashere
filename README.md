@@ -2,11 +2,10 @@
   <img src="https://komarev.com/ghpvc/?username=pr3ttiestpriincess&label=REPENTED&color=1B76F2" alt="visitor counter">
 </p>
 
-$$\color{#3f4096}\text{"　i　cant　believe　i　let　you　get　away　"}$$
 
 
 <p align="center">
-im matt hiiihiiii ikin matt andfictkin him doubs just iwcplease ty
+$$\color{#3f4096}\text{"　i　cant　believe　i　let　you　get　away　"}$$
 
 <p align="center">
 <img width="889" height="572" alt="image" src="https://github.com/user-attachments/assets/e8d5d07a-6139-44eb-8434-493c764f758b" />
