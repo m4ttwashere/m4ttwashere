@@ -24,7 +24,8 @@ $$\color{#6f6eb6}\text{doubs　js　iwc}$$
 
 </div>
 
+<div align="center">
 <img width="250" height="142" alt="stamp" src="https://github.com/user-attachments/assets/a399692b-0258-414a-b088-150ea4636a72" />
 
 <img width="250" height="142" alt="staamp" src="https://github.com/user-attachments/assets/bc189092-8ebe-47e0-9788-040cc9af57b4" />
-
+</div>
