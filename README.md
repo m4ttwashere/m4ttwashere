@@ -1,6 +1,7 @@
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=github&label=REPENTED&color=aa4289" alt="visitor counter">
+  <img src="https://shields.io" alt="visitor counter">
 </p>
+
 
 
 
