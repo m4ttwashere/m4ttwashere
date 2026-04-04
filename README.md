@@ -19,5 +19,5 @@ $$\color{#6f6eb6}\text{"　i　cant　believe　i　let　you　get　away　"}$
 
 </div>
 
-$$\color{#6f6eb6}\text{h}$$
+
 
