@@ -1,6 +1,3 @@
-<p align="center">
-  <img src="https://shields.io" alt="visitor counter">
-</p>
 
 
 
