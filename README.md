@@ -13,6 +13,7 @@ $$\text{\color{#6f6eb6}matt \color{#aa4289}kin \color{#6f6eb6}n \color{#aa4289}f
 
 $$\color{#6f6eb6}\text{doubs　js　iwc}$$
 
+$$\color{#6f6eb6}\text{SKEET　X　MATT　HVY　DNI　THANKS}$$
 
 <p align="center">
 <img width="889" height="572" alt="image" src="https://github.com/user-attachments/assets/e8d5d07a-6139-44eb-8434-493c764f758b" />
