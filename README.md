@@ -31,7 +31,6 @@ $$\color{#6f6eb6}\text{doubs　js　iwc}$$
 </div>
 
 
-$$\text{\color{#6f6eb6}skeet \color{#aa4289}kins \color{#6f6eb6}iwcare$$
 
 
 <div align="center">
