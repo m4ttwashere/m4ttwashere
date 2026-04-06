@@ -31,6 +31,7 @@ $$\color{#6f6eb6}\text{SKEET　X　MATT　HVY　DNI　THANKS}$$
 <img width="250" height="142" alt="staamp" src="https://github.com/user-attachments/assets/bc189092-8ebe-47e0-9788-040cc9af57b4" />
 </div>
 
+$$\color{#6f6eb6}\text{doub　matt　kins　or　fictkins　js　iwc}$$
 
 $$\color{#6f6eb6}\text{skeet　kins　or　fictkins　iwcare}$$
 
