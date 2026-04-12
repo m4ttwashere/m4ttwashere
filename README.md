@@ -36,7 +36,9 @@ $$\color{#6f6eb6}\text{skeet　kins　or　fictkins　iwcare}$$
 
 <div align="center">
 
-https://github.com/user-attachments/assets/c9e8d2cd-fb4f-487e-be9a-c360ef4b2d0c
+
+https://github.com/user-attachments/assets/2f193755-ce6d-4d2c-95f9-40d0b00ed1f7
+
 
 </div>
 
