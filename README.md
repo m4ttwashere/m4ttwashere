@@ -7,7 +7,7 @@
 
 
 
-$$\color{#6f6eb6}\text{"　i　cant　believe　i　let　you　get　away　"}$$
+$$\color{#6f6eb6}\text{rmking !}$$
 
 $$\text{\color{#6f6eb6}hvy \color{#aa4289}matt \color{#6f6eb6}kin \color{#aa4289}n \color{#6f6eb6}fict\color{#aa4289}kin}$$
 
