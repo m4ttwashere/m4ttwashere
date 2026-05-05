@@ -31,7 +31,7 @@ $$\color{#6f6eb6}\text{SKEET　X　MATT　HVY　DNI　THANKS}$$
 
 $$\color{#6f6eb6}\text{doub　matt　kins　or　fictkins　iwec.}$$
 
-$$\color{#6f6eb6}\text{skeet　kins　or　fictkins　iwcare}$$
+$$\color{#6f6eb6}\text{skeet　kins　or　fictkins　iwcare or dniuf cause im friends with a skeet fictkin okay?}$$
 
 
 <div align="center">
