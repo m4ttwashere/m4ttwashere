@@ -13,7 +13,7 @@ $$\color{#ccd9e6}\text{SKEET　X　MATT　HVY　DNI　THANKS}$$
 
 <div align="center">
 
-[@pr3ttiestpriincess](https://github.com/pr3ttiestpriincess) &nbsp; $\text{\color{#ccd9e6}ma\color{#f2d3e3}in}$
+[@pr3typrincess](https://github.com/pr3typrincess) &nbsp; $\text{\color{#ccd9e6}ma\color{#f2d3e3}in}$
 
 </div>
 
