@@ -17,13 +17,10 @@ $$\color{#ccd9e6}\text{SKEET　X　MATT　HVY　DNI　THANKS}$$
 
 </div>
 
-<div align="center">
-<img width="250" height="142" alt="stamp" src="https://github.com/user-attachments/assets/a399692b-0258-414a-b088-150ea4636a72" />
-</div>
 
-$$\color{#ccd9e6}\text{doub　matt　kins　or　fictkins　iwec.}$$
+$$\color{#ccd9e6}\text{doubles　iwec.}$$
 
-$$\color{#ccd9e6}\text{skeet　kins　or　fictkins　iwcuf　or dniuf　cause　im　friends　with　a　skeet　fictkin　okay?}$$
+$$\color{#ccd9e6}\text{skeet　kins　dniuf}$$
 
 
 <div align="center">
